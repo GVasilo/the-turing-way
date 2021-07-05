@@ -46,7 +46,7 @@ we will give you an optional 1 hour GitHub tutorial:
 * Lisa S (she/her)/ 
 * Bobby / 
 * Evdokia / 
-* Greg / 
+* Greg / Walk around Yorkshire's countryside
 * Jess / 
 * Chris (he/him) / 
 * Rocio/ 
